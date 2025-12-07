@@ -1,4 +1,4 @@
-### *Jesterspace* : Follow Space's Main-
+### *Jesterspace* : Follow Space's [main](https://github.com/KujouEv)
 
 <!--
 **Jester-Space/Jester-Space** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
