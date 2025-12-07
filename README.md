@@ -10,3 +10,10 @@
 
 > "and color their [tree](https://colormytree.me/2025/01KBC9DH63PN0ZH2JK14T3FWRD)."\
 > `...`
+
+> "Draw on their [strawpage](https://kujouev.straw.page/)."\
+> `...` (_or leave nice messages there!_)
+
+> ***Stares at you***\
+> `...`\
+> ***Explodes into confetti***
